@@ -1,3 +1,2 @@
-## 欢迎来到————岳亚高的个人空间
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+## 欢迎来到——岳亚高的个人空间
+    本网站主要用来记录本人生活和学习状态，包括诗词
