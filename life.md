@@ -59,6 +59,6 @@ The further back you pull, the more of that truth you'll endure
 单纯怎么了？单纯不好吗？我是一个聪明人，但是无论多么努力，经历多少，我好像都不能变复杂。我最多在思维上加一层冷静，但这已是极限。单纯不可怕，反而可以看清复杂独善其身，才能兼济天下。单纯依旧可以有力量。同样，强者的温柔，强者的单纯才有十足的力量，可以用来保护，可以用来拯救，可以用来创造美好。<br/>
 <br/>
 ### 2022.03.22
-我们不能选择自己的爱，但是仍然能爱。
+我们不能选择自己的爱，但是仍然能爱<br/>
 https://www.bilibili.com/video/BV1UU4y1p71r/?spm_id_from=333.788.recommend_more_video.0
 <br/>
