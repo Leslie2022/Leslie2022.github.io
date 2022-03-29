@@ -60,7 +60,7 @@ The further back you pull, the more of that truth you'll endure
 <br/>
 ### 2022.03.22
 我们不能选择自己的爱，但是仍然能爱<br/>
-[视频链接](https://www.bilibili.com/video/BV1UU4y1p71r/?spm_id_from=333.788.recommend_more_video.0)
+[视频链接](https://www.bilibili.com/video/BV1UU4y1p71r/?spm_id_from=333.788.recommend_more_video.0)<br/>
 <br/>
 ### 2022.03.29
 愚昧的人喜欢从众，在拥挤的庸庸碌碌中虚度年华并聊以度日。但是愚蠢又是相对的，稍微有点儿聪明的愚者又喜欢孤独，在孤独中自我刺激并以此找到存在的价值。<br/>
