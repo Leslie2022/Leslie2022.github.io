@@ -60,5 +60,10 @@ The further back you pull, the more of that truth you'll endure
 <br/>
 ### 2022.03.22
 我们不能选择自己的爱，但是仍然能爱<br/>
-https://www.bilibili.com/video/BV1UU4y1p71r/?spm_id_from=333.788.recommend_more_video.0
+[视频链接](https://www.bilibili.com/video/BV1UU4y1p71r/?spm_id_from=333.788.recommend_more_video.0)
 <br/>
+### 2022.03.29
+愚昧的人喜欢从众，在拥挤的庸庸碌碌中虚度年华并聊以度日。但是愚蠢又是相对的，稍微有点儿聪明的愚者又喜欢孤独，在孤独中自我刺激并以此找到存在的价值。<br/>
+有些人可以触动你的心灵。有些事可以触动你的心灵。你可能一无是处，前途黯淡，但是，当你的心感受到了一种力量，你就不会在黑夜中黯然神伤咀嚼孤独苦痛。但是，但是一个人最大的敌人也许就是它的心了。有些人用理性追求力量，但是感觉从来不是自己离开的，一个人不会因为情感的力量与幸运而刻意疏远它，同样一个尽力让自己盲目追求理性的人大多是因为想要疏远情感。<br/>
+<br/>
+### 
