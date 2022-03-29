@@ -16,3 +16,5 @@
 ### 诗词    <a href="/poem.html">诗词空间</a>
 <br/>
 ### 散文    <a href="/literature.html">文学空间</a>
+<br/>
+### 兴趣    <a href="/interest.html">兴趣空间</a>
