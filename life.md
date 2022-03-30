@@ -72,5 +72,6 @@ The further back you pull, the more of that truth you'll endure
 ### 2022.03.30
 人活着本来就没什么意义，但只有活下去，才能找到有趣的事物…就像你找到了这朵花，就像我找到了你<br/>
 如果你想将温柔变成力量，就要找到人性当中隐约闪耀的神性<br/>
+[视频链接](https://www.bilibili.com/video/BV1ei4y1r7fg?spm_id_from=333.851.b_7265636f6d6d656e64.1)
 <br/>
 ###
