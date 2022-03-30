@@ -17,4 +17,4 @@
 <br/>
 ### 散文    <a href="/literature.html">文学空间</a>
 <br/>
-### 兴趣    <a href="/interest.html">兴趣空间</a>
+### 兴趣    <a href="/interest.html">爱好空间</a>
