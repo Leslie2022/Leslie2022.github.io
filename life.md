@@ -71,4 +71,5 @@ The further back you pull, the more of that truth you'll endure
 如果你想将温柔变成力量，就要找到人性当中隐约闪耀的神性<br/>
 [视频链接](https://www.bilibili.com/video/BV1ei4y1r7fg?spm_id_from=333.851.b_7265636f6d6d656e64.1)
 <br/>
-###
+### 2022.03.31
+我遵循理性良久，并用了很多方案排斥宿命论。但是爱情这件事，好像只能是命中注定。恰如蓦然回首，灯火阑珊。不是命中注定的在一起，而是就是有一个人很合适你，“灵魂”能与你同步。只是你要努力抓住每一个可能的线索，然后找下去，最后，柳暗花明。
