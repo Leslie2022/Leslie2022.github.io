@@ -79,6 +79,6 @@ The further back you pull, the more of that truth you'll endure
 <br/>
 ### 2022.04.02
 夏天是一场热烈与浪漫，花香是一场梦。<br/>
-希望迎面吹来的花瓣里，藏着你的爱情。<br/>
+希望迎面飘来的花瓣里，藏着你的爱情。<br/>
 <br/>
 ### 2022.04
