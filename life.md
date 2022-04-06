@@ -7,6 +7,8 @@
 我们不能选择自己的爱，但仍可以爱。 
 The further back you pull, the more of that truth you'll endure
 --2022.03.14
+追风去，不如等风来
+--2022.04.05
 ```
 <br/>
 <br/>
