@@ -107,4 +107,7 @@ The further back you pull, the more of that truth you'll endure
 [视频链接](https://www.bilibili.com/video/BV1ZT4y1i7u5?spm_id_from=333.851.b_7265636f6d6d656e64.1)<br/>
 浪漫和宁静，拯救一个人的心灵。<br/>
 <br/>
-### 2022.04
+### 2022.04.10
+又懒又怂又菜又没有上进心的人怎么可能过得很好呢？<br/>
+<br/>
+### 2022.04.
