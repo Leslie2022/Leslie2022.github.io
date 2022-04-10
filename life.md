@@ -110,4 +110,40 @@ The further back you pull, the more of that truth you'll endure
 ### 2022.04.10
 又懒又怂又菜又没有上进心的人怎么可能过得很好呢？<br/>
 <br/>
+### 2022.04.11
+You must be Rick.<br/>
+Mm-hmm.<br/>
+I've heard a lot about you today.<br/>
+Your family is crazy about you.<br/>
+Your daughter holds you in very high regard.<br/>
+You're a lucky fella.<br/>
+Yeah, thank you.<br/>
+Uh, sweetie, you don't still happen to have that syringe in your purse? Dad I would like you to tell me what's in the syringe.<br/>
+It's a serum that I need to, uh, to stay alive.<br/>
+I have had a rough day.<br/>
+And, uh, I've sustained a lot of damage.<br/>
+I'm pretty close to death, which the serum will prevent.<br/>
+By changing you from a pickle to a human.<br/>
+Yes.<br/>
+Rick, why did you lie to your daughter? So I wouldn't have to come here.<br/>
+Why didn't you want to come here? Because I don't respect therapy, because I'm a scientist.<br/>
+Because I invent, transform, create, and destroy for a living, and when I don't like something about the world, I change it.<br/>
+And I don't think going to a rented office in a strip mall to listen to some agent of averageness explain which words mean which feelings has ever helped anyone do anything.<br/>
+I think it's helped a lot of people get comfortable and stop panicking, which is a state of mind we value in the animals we eat, but not something I want for myself.<br/>
+I'm not a cow.<br/>
+I'm a pickle When I feel like it.<br/>
+So you asked.<br/>
+Rick, the only connection between your unquestionable intelligence and the sickness destroying your family is that everyone in your family, you included, use intelligence to justify sickness.<br/>
+You seem to alternate between viewing your own mind as an unstoppable force and as an inescapable curse.<br/>
+And I think it's because the only truly unapproachable concept for you is that it's your mind within your control.<br/>
+You chose to come here, you chose to talk to belittle my vocation, just as you chose to become a pickle.<br/>
+You are the master of your universe, and yet you are dripping with rat blood and feces.<br/>
+Your enormous mind literally vegetating by your own hand.<br/>
+I have no doubt that you would be bored senseless by therapy, the same way I'm bored when I brush my teeth and wipe my ass.<br/>
+Because the thing about repairing, maintaining, and cleaning is it's not an adventure.<br/>
+There's no way to do it so wrong you might die.<br/>
+It's just work.<br/>
+And the bottom line is, some people are okay going to work, and some people well, some people would rather die.<br/>
+Each of us gets to choose.<br/>
+<br/>
 ### 2022.04.
