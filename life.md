@@ -155,4 +155,7 @@ It's just work.<br/>
 And the bottom line is, some people are okay going to work, and some people well, some people would rather die.<br/>
 Each of us gets to choose.<br/>
 <br/>
+### 2022.04.24
+Hello there, life is always better than you can image.<br/>
+<br/>
 ### 2022.04.
