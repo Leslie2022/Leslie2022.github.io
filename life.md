@@ -9,6 +9,8 @@ The further back you pull, the more of that truth you'll endure
 --2022.03.14
 追风去，不如等风来
 --2022.04.05
+Hello there, life is always better than you can image.
+--2022.04.24
 ```
 <br/>
 <br/>
