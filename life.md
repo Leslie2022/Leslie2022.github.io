@@ -158,4 +158,7 @@ Each of us gets to choose.<br/>
 ### 2022.04.24
 Hello there, life is always better than you can image.<br/>
 <br/>
+### 2022.04.25
+我来这个世界，不是为了繁衍后代而是来看花怎么开，水怎么流，太阳怎么升起，夕阳何时落下，我活在世上无非想要明白些道理，遇见有趣的事，生命是一场偶然，我在其中寻找因果。<br/>
+<br/>
 ### 2022.04.
