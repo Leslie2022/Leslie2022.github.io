@@ -165,4 +165,8 @@ Hello there, life is always better than you can image.<br/>
 --王小波<br/>
 王小波这样浪漫的人，应该很自由吧。像一朵云，知道自己终将遇见彩虹。<br/>
 <br/>
+### 2022.04.26
+一个人最自由就是能做自己做不到的事情吧。<br/>
+<br/>
 ### 2022.04.
+
