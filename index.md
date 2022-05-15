@@ -27,4 +27,10 @@
 ### 兴趣    <a href="/interest.html">爱好空间</a>
 <br/>
 <br/>
+## 工作台
+### 知识    <a href="/studying.html">科</a>
+### 志向    <a href="/ambition.html">哲</a>
+### 志趣    <a href="/hobby.html">业</a>
+### 喜好    <a href="/living.html">欲</a>
+<br/>
 ## 照片墙
