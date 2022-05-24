@@ -292,3 +292,7 @@ Hello there, life is always better than you can image.<br/>
 强者并不孤独，强者才能选择自由。<br/>
 <br/>
 ### 2022.05.23
+一个人能为爱情等待多久？
+答案是：五十一年九个月零四天。
+--《霍乱时期的爱情》
+### 2022.05.24
