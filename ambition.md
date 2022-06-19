@@ -1,7 +1,7 @@
 # 志向-业
 
 ## pica
-![pica](./gallery/pica.jpg)
+![pica](./gallery/pica.JPG)
 
 <br/>
 <br/>
